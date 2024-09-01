@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **nadeesha.gcc99@gmail.com**
 
-- ⚡ Fun fact **I am Funny**
+- ⚡ Fun fact **I am Normal**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
